@@ -7,6 +7,6 @@ Thanks for your interest in joining the Money Hoarders Global Network core devel
 
 Your first step to becoming a  ***Money Hoarders Global Network Core Developer*** will be to contact the founder/creator of Money Hoarders Global Network
 
-Email your resume/portfolio to [EMAIL](moneyhoardermike@outlook.com)
+Email your resume/portfolio to **moneyhoardermike@outlook.com**
 
 
